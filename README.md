@@ -1,4 +1,6 @@
 ## Halo, Sahabat Kreatif! 👋
+![Uploading LOGO BCN X.jpg…]()
+
 "UTBEX Indonesia dan BCN bukan hanya berkolaborasi, tapi menyatu dalam satu visi: menghadirkan kekuatan kreatif dari akar desa untuk masa depan yang lebih mandiri dan berdampak. Bersama, kami menyalakan api perubahan dari desa, bukan sekadar membangun ekonomi — tetapi menghidupkan harapan."
 
 
