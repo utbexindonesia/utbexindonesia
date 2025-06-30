@@ -1,5 +1,6 @@
 ## Halo, Sahabat Kreatif! 👋
-![BCN](img/github-header-1.jpg)
+![1 jpg](https://github.com/user-attachments/assets/a91e7115-05f5-4091-80c7-2dff09973e08)
+
 
 "UTBEX Indonesia dan BCN bukan hanya berkolaborasi, tapi menyatu dalam satu visi: menghadirkan kekuatan kreatif dari akar desa untuk masa depan yang lebih mandiri dan berdampak. Bersama, kami menyalakan api perubahan dari desa, bukan sekadar membangun ekonomi — tetapi menghidupkan harapan."
 
